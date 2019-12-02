@@ -1,1 +1,0 @@
-# futaba-best-girl
